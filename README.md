@@ -7,7 +7,7 @@
 
 - 📫 Você me encontra através do e-mail **ademilsonmiguel01@gmail.com**
 
-- 📄LinkedIN [https://www.linkedin.com/in/ademilson-miguel-56b6a6216/](https://www.linkedin.com/in/ademilson-miguel-56b6a6216/)
+- 📄LinkedIN [https://www.linkedin.com/in/ademilson-miguel/](https://www.linkedin.com/in/ademilson-miguel/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
